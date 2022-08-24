@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ninjadragonoli
+- 👀 I’m interested in getting blooket hacks and lines of code
+- 🌱 I’m currently learning about tech and codding 
+- 💞️ I’m looking to collaborate on being pretty desent at coding
+- 📫 How to reach me you can reach me by email 
